@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-Join Us on Youtube! <br/>
+Join Us on Youtube! <br/>  
 <i><u>https://www.youtube.com/channel/UCK8YsKv4-N6ItZfzEyKlI6A/featured</u></i>
 </p>
 
